@@ -1,0 +1,5 @@
+- 👋 Eai, meu nome é @ReNaNRDI
+- 👀 Gosto de Futebol e programação
+- 🌱 Sou estudante de uma escola publica chamada Augusto Meyer em esteio onde faço curos tec em administração, e escola particular são lucas onde estudo T.I 
+- 💞️ No momento estou solteiro.
+- 📫 Moro em Esteio, Rio Grande Do sul
